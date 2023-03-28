@@ -1,1 +1,0 @@
-# AtakuruEmre.github.io
